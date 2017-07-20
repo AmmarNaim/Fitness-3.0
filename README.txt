@@ -1,2 +1,2 @@
-Hi there
-Bahit sana
+ooh hello
+Bahit situ
